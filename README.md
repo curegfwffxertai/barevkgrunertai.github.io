@@ -1,1 +1,0 @@
-# barevkgrunertai.github.io
